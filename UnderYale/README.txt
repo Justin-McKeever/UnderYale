@@ -7,7 +7,7 @@ The music is also By Toby Fox the originals are here, They too have been edited 
 BoneTrousle - https://youtu.be/AKAiUtWZ4xY
 Determination - https://youtu.be/h1wSPmlZV-w
 
-Seeing as I already dont own any of the assets people are free to use them anb the project as they please, I could indeed care less about this project so im not going to start carring now.
+Seeing as I already dont own any of the assets people are free to use them and the project as they please, I could indeed care less about this project so im not going to start carring now.
 
 Thank you for playing if you did, (not to sound flat about it but) not that it matters. lol.
 
